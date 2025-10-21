@@ -11,7 +11,7 @@ call me **Toby** or **Tobias** ;; or **Tobeez** 🧇
 
 **c*h and int freely!!** + whisp 2 interact if my status says busy
 
-![](https://github.com/TlCClTOBY/-/blob/main/images%20-%202025-10-22T053527.535.jpeg)
+![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/images%20-%202025-10-22T053527.535.jpeg)
  
  `` “ it's almost like I found a friend. ” ``
  
@@ -30,7 +30,7 @@ call me **Toby** or **Tobias** ;; or **Tobeez** 🧇
 
 # more about me!!
 
-![](https://github.com/TlCClTOBY/-/blob/main/ticci-toby-creepypasta.gif)
+![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticci-toby-creepypasta.gif)
 
 Ticci Toby is my *kinsona*, meaning i see myself in him deeply. __i'm also dianosed with _ADHD___, pls interact with caution! i think slenderverse, crp , SP, mouth washing, DT/UT, omori are awesome! i sometimes draw fanarts of them. andd surprise surprise... i don't ships much. but if you like it, *ya like it;3*
 
@@ -44,6 +44,6 @@ you're cool
 
   </details>
 
-  ![](https://github.com/TlCClTOBY/-/blob/main/ticcitoby.gif)
+  ![](https://github.com/TlCClTOBY/TlCCITOBY/blob/main/ticcitoby.gif)
 
   for reading !!
